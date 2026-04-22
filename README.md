@@ -1,4 +1,4 @@
-<img width="900" height="40" alt="discord-divider" src="https://github.com/user-attachments/assets/a3bdc46e-c3bb-4fb0-b405-a7a02a3dbab6" />
+<img width="900" height="20" alt="discord-divider" src="https://github.com/user-attachments/assets/a3bdc46e-c3bb-4fb0-b405-a7a02a3dbab6" />
 
 
 
