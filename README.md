@@ -16,5 +16,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="50" height="50" alt="dancing-dance" src="https://github.com/user-attachments/assets/34e1d155-2a59-413e-aefb-9b9e3ab5f2c0" />
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="150" height="150" alt="dancing-dance" src="https://github.com/user-attachments/assets/34e1d155-2a59-413e-aefb-9b9e3ab5f2c0" />
 
