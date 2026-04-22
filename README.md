@@ -1,12 +1,5 @@
 <img width="900" height="20" alt="discord-divider" src="https://github.com/user-attachments/assets/a3bdc46e-c3bb-4fb0-b405-a7a02a3dbab6" />
 
-<img width="498" height="280" alt="divider (1)" src="https://github.com/user-attachments/assets/e38e47ea-64a5-49d7-8a81-22ca523c925d" />
-
-
-
-
-
-
 
 
 
