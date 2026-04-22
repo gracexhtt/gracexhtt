@@ -1,10 +1,4 @@
-<img width="489" height="62" alt="divider-weirdcore" src="https://github.com/user-attachments/assets/823a7878-4788-4d27-8f38-e61750b7270f" />
-
-
-
-
-
-<img width="900" height="20" alt="discord-divider" src="https://github.com/user-attachments/assets/a3bdc46e-c3bb-4fb0-b405-a7a02a3dbab6" />
+<img width="350" height="11" alt="hazard-hazard-tape" src="https://github.com/user-attachments/assets/fa96776a-d21a-4415-a541-386ba45eca65" />
 
 
 
