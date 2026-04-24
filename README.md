@@ -12,7 +12,9 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 　　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˃⩊˂
-ㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+　　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
  not befriending anyone 13 and under, but you are free to int!
 
 
