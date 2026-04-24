@@ -3,7 +3,9 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 　　　　　 　 　　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　　
-
+ㅤㅤㅤㅤ17 y.o  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤprimarily offtab or in menu so w2i
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤ <img width="800" height="500" alt="fbdd7729ba9eb10fe17db95716bd7603" src="https://github.com/user-attachments/assets/b680a7b5-c089-4d6d-a9d2-20bb34acf4cc" />
 
