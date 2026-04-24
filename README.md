@@ -16,7 +16,7 @@
 　　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
  not befriending anyone 13 and under, but you are free to int!
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="50" height="50" alt="tkthao219-rosa" src="https://github.com/user-attachments/assets/0137cf3a-0366-44d7-a113-5c34a5a26420" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="50" height="50" alt="tkthao219-rosa" src="https://github.com/user-attachments/assets/0137cf3a-0366-44d7-a113-5c34a5a26420" />
 
 
 
