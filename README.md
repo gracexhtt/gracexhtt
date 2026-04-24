@@ -1,3 +1,4 @@
+
 　 　 　　ㅤㅤ<img width="850" height="100" alt="divider-weirdcore" src="https://github.com/user-attachments/assets/f8bf37ec-4054-47b8-9a79-8d3df525dfa9" />
 
 
@@ -14,5 +15,8 @@
 　　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˃⩊˂ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 　　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
  not befriending anyone 13 and under, but you are free to int!
+
+<img width="100" height="100" alt="tkthao219-rosa" src="https://github.com/user-attachments/assets/0137cf3a-0366-44d7-a113-5c34a5a26420" />
+
 
 
