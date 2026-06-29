@@ -1,5 +1,4 @@
 
-　 　 　　ㅤㅤ<img width="850" height="100" alt="divider-weirdcore" src="https://github.com/user-attachments/assets/f8bf37ec-4054-47b8-9a79-8d3df525dfa9" />
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
